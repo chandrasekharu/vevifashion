@@ -1,2 +1,0 @@
-# vevifashion
-online dress store
